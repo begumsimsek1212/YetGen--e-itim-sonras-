@@ -1,1 +1,1 @@
-# YetGen--e-itim-sonras-
+# YetGen-egitim-sonrası
